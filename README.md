@@ -1,1 +1,1 @@
-# navodaya.github.io
+# navodaya
